@@ -1,0 +1,21 @@
+{
+  "title": "The Cartographer of Doubt",
+  "subtitle": "Short Stories",
+  "genre": "Literary fiction / short stories",
+  "author": "Walusimbi Leon",
+  "description": "A linked collection of short stories about people who map the uncertain territories of their own lives \u2014 a letter never sent, a road not taken, a name half-remembered.",
+  "style": "Varied literary voices, each story distinct; precise, image-led prose. Endings that resonate rather than resolve.",
+  "characters": "Recurring towns, a recurring stranger, and a mapmaker who appears in different guises.",
+  "setting": "An unnamed country; the present and the recent past interleaved.",
+  "notes": "Write the first story as a self-contained piece about a woman who draws maps of conversations she wishes she'd had. Each chapter a new story.",
+  "chapterTitle": "Story",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
