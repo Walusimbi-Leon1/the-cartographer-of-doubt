@@ -30,3 +30,5 @@ This collection follows a **Version.Update** format:
 | **v2.0** | Version 2, Update 0 | New iteration, fundamental changes |
 
 Older versions are never deleted. Every published version lives in its own directory for reference.
+
+<!-- rebuild -->
