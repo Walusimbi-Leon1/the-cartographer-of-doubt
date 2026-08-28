@@ -118,6 +118,114 @@ At the bottom of the map, she writes a single word in the margin: *Possible*.
 
 She doesn't know what it means yet. She doesn't need to. The map will tell her, in time. That's what maps are for.
 
+### The Map of the Unmade Bed
+
+She maps the conversation she should have had with her father the week before he died, though she didn't know he was dying, though no one did. The call had come from a neighbor, not from him. He'd been found in his chair, the television still on, a cup of tea gone cold on the table beside him. The neighbor said, "He looked peaceful," which Mara had learned was what people said when they didn't know what else to say, when the truth was too heavy to lift.
+
+She draws this conversation in a different style. Where her other maps are precise, architectural, this one is soft, almost watercolor in its application. She uses pencil first, light strokes, the way she imagines a surveyor might begin before committing to ink. Her father was not a man of many words. He was a man of silences, of long pauses that she'd filled as a child with chatter because she couldn't bear the emptiness. She'd learned, over time, to read his silences the way other people read sentences. A certain tilt of his head meant he was listening. A certain way of setting down his cup meant he was angry. A certain stillness in his shoulders meant he was sad and would not say so.
+
+The conversation she wishes she'd had with him is not a conversation at all. It's a question. Just one. She'd wanted to ask him, in the last years of his life, whether he'd been happy. Whether the life he'd lived—the factory, the garden, the wife who'd left him when Mara was twelve, the children who'd grown and gone—whether it had been enough. She'd never asked. She'd been afraid of the answer. She'd been afraid he'd say no, and then she'd have to carry that, and she'd been afraid he'd say yes, and then she'd have to wonder why she hadn't believed it without asking.
+
+She draws the conversation as a single road. It's the simplest map she's ever made. A road from her house to his, through the town where she grew up, past the school, past the church, past the field where she'd learned to ride a bike. The road ends at his front door. On the doorstep, she draws a small figure—herself, though she doesn't draw faces, never has. The figure is standing with one hand raised, mid-knock. Beyond the door, she draws another figure. Her father, in his chair, the television on, the cup of tea cooling. The two figures are separated by the door, and the door is the only thing on the map that she draws in red.
+
+She's learned something about red ink. It's not for the things that happened. It's for the things that might have happened, if only the door had been opened.
+
+---
+
+The mapmaker is still in town. He's set up a more permanent arrangement now—a small room above the bakery, where he works on a commission for the council to map the town's forgotten wells. He told Mara about it when she ran into him at the market. "There are seventeen," he said. "Some of them date back to the founding. Nobody's recorded them properly."
+
+"That sounds like the kind of thing that matters," she said.
+
+"It matters to someone," he said. "That's enough."
+
+She thinks about this as she draws. *It matters to someone. That's enough.* She's not sure if she believes it, but she likes the shape of it, the way it fits in her mouth.
+
+Three days after she draws the road to her father's door, she goes to the mapmaker's room above the bakery. She brings the map with her. She doesn't know why. She's never shown her maps to anyone. They live in the drawer, stacked and folded, their red routes bleeding into each other like the veins of a leaf. But she's been thinking about what he said, about the best maps being of things that are almost gone. Her father is almost gone. The road to his door is almost gone—not physically, but in the way that matters, in the way of memory, in the way of the living. She wants to know if the map is good.
+
+He opens the door before she knocks. "I saw you coming," he says. "I've been watching the street."
+
+"Have you?"
+
+"I'm mapping it," he says. "The way the light falls at this hour. The way people walk. It's a good street for observation."
+
+She holds out the map. He takes it, unfolds it, studies it in the light from the window. His face doesn't change. He looks at it for a long time, and then he looks up at her, and his eyes are the color of the sea in winter, and he says, "This is a map of a question."
+
+"Yes," she says.
+
+"The door is the thing you can't cross."
+
+"Yes."
+
+He looks at the map again. "You've drawn the road in pencil," he says. "Everything else is in ink."
+
+She hadn't noticed that. She'd drawn the road first, in pencil, because she wasn't sure of its shape. The figures, the door, the red of the knock—those had come later, in ink, because she'd been certain of them.
+
+"The road is the part you're unsure of," he says. "The question is the part you're sure of. But you've drawn the question in red, and red is the color of things that might have been."
+
+"I don't know if there's a color for things that might still be," she says.
+
+He looks at her for a long moment. Then he puts the map on the table and picks up his pen. He draws, at the bottom of the map, in the margin, a small mark. It's not a symbol she recognizes. It's not an X, not a route, not a contour line. It's a shape like a seed, or a bulb, or a bud before it opens.
+
+"That's the color," he says. "That's the symbol for the things that might still be. It's not a color yet. It's a seed. But if you water it, if you give it time, it becomes a color."
+
+"What does it become?"
+
+He doesn't answer. He just hands her the map back, and she folds it, and she puts it in her pocket, and she walks home through the streets of the town, and she feels the weight of the seed there, against her leg, like something planted.
+
+---
+
+She maps the conversation she wishes she'd had with her daughter.
+
+Her daughter is thirty-two now. She lives in a city far to the south, in an apartment with a balcony that overlooks a river. She calls on Sundays, mostly. The calls are short, procedural—*How are you, I'm fine, the weather here is—yes, it's hot, no, we haven't had rain—* and then the sound of her daughter's life in the background, a kettle, a television, a friend's voice, and the conversation winding down like a clock that needs winding.
+
+Mara doesn't know how they got here. She's thought about it, the way she thinks about all the conversations she's mapped—from the outside, from a distance, as if studying a terrain she can't enter. She was a young mother. She was a working mother. She was a mother who left her daughter with her own mother, sometimes for weeks at a time, because the city was too expensive, because the work was too demanding, because she was too young to know what she was giving up.
+
+Her daughter had grown up with her grandmother's garden. Her daughter had grown up with Daniel's dry humor, with his steady presence. Her daughter had grown up, in some ways, more connected to the town than Mara had ever been. And Mara had watched this from the city, and she'd told herself it was fine, that her daughter was loved, that love didn't have to come from her.
+
+She draws this conversation as a map of a garden. Her mother's garden, specifically—the one that had gone to seed by the time she died, but that had once been lush, overgrown in the way that gardens become when they're loved imperfectly. She draws the paths, the beds, the apple tree in the corner, the gate that never latched properly. She draws herself as a figure at the edge of the garden, and her daughter as a figure in the center, and between them, the overgrown paths, the tangled roses, the bed that had been turned but never planted.
+
+The red routes are the things she could have said. She could have said, *I was afraid I didn't know how to love you properly, so I let your grandmother do it.* She could have said, *I watched you from the city, and I was proud of you, and I didn't know how to tell you.* She could have said, *I'm sorry I made you wait for me to learn how to be a mother.*
+
+She draws these routes, and they all lead to the same place: the center of the garden, where her daughter stands, and where the red routes converge like the spokes of a wheel. In the center, she draws a small green mark. The shape of a seed.
+
+---
+
+That night, she calls her daughter. It's not Sunday. It's Wednesday, and it's late, and she knows her daughter will be surprised, but she calls anyway. The phone rings three times. Four. Five. She's about to hang up when her daughter answers, her voice thick with sleep, saying, "Mom? Are you okay?"
+
+"I'm fine," Mara says. "I just—I wanted to ask you something."
+
+There's a pause. In the pause, she can hear her daughter sitting up, turning on a light, the sound of the river through the open window of the apartment.
+
+"What is it?" her daughter says.
+
+Mara holds the phone to her ear. She thinks of the map in her pocket, the one with the seed in the margin. She thinks of the road in pencil, the door in red. She thinks of her mother's map, the one labeled *The way home*.
+
+"Was it enough?" she says. "Me. From the city. The calls on Sundays. The visits that were always too short. Was it enough?"
+
+Her daughter doesn't answer right away. Mara hears the river, the sound of the water moving, and she thinks of all the maps she's drawn, and all the red routes that never became roads, and all the seeds that never became colors.
+
+"Mom," her daughter says, and her voice is strange, and Mara doesn't know if it's strange with anger or strange with love or strange with something that's both. "Mom, you're asking me that now? Now, when I'm thirty-two, and I've already figured out how to live without you?"
+
+"Yes," Mara says. "Now."
+
+The pause is long. Mara counts the seconds the way she counts the spaces between the lines on her maps. One. Two. Three. Four. Five.
+
+"Come visit," her daughter says. "Come visit, and I'll tell you."
+
+Mara closes her eyes. She can feel the map in her pocket, the one with the seed. She can feel the drawer in the attic, full of conversations she's never had. She can feel the red ink, waiting to be used.
+
+"Okay," she says. "I'll come."
+
+She hangs up. She takes the map out of her pocket. She unfolds it, and she looks at the seed in the margin, and she thinks about what the mapmaker said. *It's not a color yet. But if you water it, if you give it time, it becomes a color.*
+
+She looks at the map, and she sees that the seed is growing. It's small, barely visible, but it's there—a thread of green, just beginning, reaching toward the center of the garden where her daughter stands.
+
+She folds the map. She puts it in the drawer with the others. And then she walks to the window, and she looks out at the town, at the lights in the windows, at the streets she knows by heart, at the map of everything she's ever been and everything she might still become.
+
+Tomorrow, she'll book a train ticket. Tomorrow, she'll go south.
+
+Tonight, she stands at the window, and she lets the map tell her the way.
+
 ---
 
 ## About This Book
