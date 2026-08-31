@@ -226,6 +226,108 @@ Tomorrow, she'll book a train ticket. Tomorrow, she'll go south.
 
 Tonight, she stands at the window, and she lets the map tell her the way.
 
+### The Mapmaker's Wife
+
+The mapmaker has a wife. Mara has never seen her, but she knows her the way she knows the town—by the spaces she occupies, by the absence she leaves. The mapmaker's shop is open six days a week, and on the seventh, it is closed, and Mara has sometimes walked past on that day and seen the light on in the upstairs window, and the shadow of a woman moving behind the curtain, and she has wondered what it would be like to be married to a man who draws the roads people might have taken.
+
+She meets her on a Tuesday, in the bakery. The woman is tall, with grey hair pulled back in a knot, and she is buying bread, and she is laughing at something the baker has said, and Mara knows her immediately, the way you know a person you've only ever seen as a shadow. She doesn't say anything. She stands in line behind her, and she watches the woman pay, and she watches her leave, and she thinks about the mapmaker and the woman he lives with, and she wonders if he maps their conversations too.
+
+The thought stays with her. It follows her home. It follows her to the attic, where she opens the drawer and looks at the maps, and it follows her to the window, where she stands and looks out at the town, and it follows her to the kitchen, where she makes tea and doesn't drink it.
+
+That night, she doesn't sleep. She lies in bed, and she thinks about the mapmaker's wife, and she thinks about the seed in the margin of her map, and she thinks about her daughter, and the train ticket she bought that afternoon, and the suitcase she packed and unpacked and packed again. She thinks about the conversation she had with her daughter, the one that ended with *Come visit, and I'll tell you,* and she thinks about what her daughter will say, and what she will do if it's not enough, and what she will do if it is.
+
+She gets up. She puts on her coat. She walks through the dark streets to the mapmaker's shop, and she stands outside, and she looks up at the window, and the light is on, and she doesn't know why she's come, but she knocks.
+
+The mapmaker opens the door. He is wearing a vest over a shirt with rolled sleeves. He has ink on his fingers. He looks at her, and he doesn't look surprised.
+
+"I need to ask you something," she says.
+
+"Come in," he says.
+
+She steps inside. The shop is different at night. The maps are still on the walls, but they seem darker, more secret, like maps of places that only exist in the dark. The mapmaker leads her to the back room, where there is a table and two chairs and a pot of tea that has already been made, as if he was expecting her.
+
+"Are you going to map this conversation?" she asks.
+
+He pours the tea. "I don't map conversations," he says. "I map the spaces between them."
+
+"What's the difference?"
+
+He sits down. He looks at her, and his eyes are tired, and there is something in them that she hasn't seen before, something she can't name. "The conversation is what you say," he says. "The space between is what you mean."
+
+She sits down across from him. She doesn't touch the tea. "I met your wife," she says. "At the bakery."
+
+He nods. "She's not my wife," he says.
+
+Mara is quiet.
+
+"She was," he says. "A long time ago. We were married for twenty years. We have two daughters, both grown, both living far away. We were married, and then we weren't, and then we were again, and then we weren't." He takes a sip of his tea. "It's complicated."
+
+"Everything is," Mara says.
+
+"No," he says. "Some things are simple. They just don't look it from the outside."
+
+She thinks about this. She thinks about her own marriage, the one that ended when her daughter was young, the one that she never maps because she doesn't know where to begin, because the red routes are too many and they all lead to the same dead end. She thinks about her daughter, who has never asked her about her father, who has never wanted to know.
+
+"Why did you come here?" the mapmaker asks.
+
+"I don't know," she says. "I bought a train ticket today. I'm going to see my daughter. I'm going to ask her if I was enough."
+
+"Was that the conversation you mapped?"
+
+"Yes."
+
+"And is that the conversation you're going to have?"
+
+She looks at him. "What do you mean?"
+
+He puts down his tea. He leans forward, and he looks at her, and his eyes are not tired anymore. They are sharp, and they are kind, and they are something else, something she can't name.
+
+"The maps you draw," he says. "The conversations you wish you'd had. They're not maps of the past. They're maps of the fear. The fear that you didn't do it right, that you didn't love enough, that you didn't say the right thing at the right time. But the past is the past. It's already drawn. You can't change it. You can only change the map you're drawing now."
+
+"I don't know how to draw this one," she says.
+
+"No one does," he says. "That's the point. The maps you draw in pencil, the ones you're unsure of, the ones where the roads don't exist yet—those are the ones that matter. Those are the ones that become real."
+
+She looks at him. She thinks about the seed in the margin of her map. She thinks about the green thread, just beginning, reaching toward the center of the garden where her daughter stands.
+
+"What's her name?" she asks. "The woman at the bakery."
+
+"Elena," he says.
+
+"Elena," she repeats. "You still love her."
+
+He doesn't answer. He doesn't need to. She can see it in the way he says her name, in the way his hand pauses over the teapot, in the way he looks at the door, as if expecting her to walk through it.
+
+"Does she know?" Mara asks.
+
+"She knows," he says. "She's the one who left."
+
+"Then why is she here?"
+
+He smiles, and it's a sad smile, the kind of smile a person wears when they've been carrying something heavy for a long time and have just realized they can put it down. "Because she maps her own conversations," he says. "And in the ones she draws, she always comes back."
+
+---
+
+Mara leaves the shop. She walks home through the dark streets, and the town is quiet, and the moon is high, and she thinks about Elena, and she thinks about the mapmaker, and she thinks about the conversations they have mapped for each other, the ones where they come back, the ones where they stay.
+
+She lets herself into her house. She goes to the attic. She opens the drawer. She takes out the map with the seed in the margin, and she unfolds it, and she looks at it, and she sees that the green thread has grown. It's longer now. It reaches past the center of the garden, past the figure of her daughter, past the edge of the paper, into the margin where the seed was drawn.
+
+She takes out her pens. She looks at the map. She thinks about the conversation she is going to have, the one she hasn't drawn yet, the one that doesn't exist yet.
+
+She picks up the pencil. She draws a new road. It starts at the edge of the garden, where she has always stood, and it leads through the overgrown paths, past the tangled roses, past the bed that had been turned but never planted, to the center, where her daughter stands. She draws it in pencil, the color of unsureness, the color of the road she doesn't know.
+
+And then, at the end of the road, where her daughter's figure stands, she draws a small mark. It's not a seed. It's not a route. It's not a contour line.
+
+It's a door.
+
+She looks at the door. She thinks about what the mapmaker said. *The maps you draw in pencil, the ones you're unsure of, the ones where the roads don't exist yet—those are the ones that matter.*
+
+She puts down the pencil. She folds the map. She puts it in her pocket, next to the train ticket.
+
+Tomorrow, she'll go south. Tomorrow, she'll knock on the door.
+
+Tonight, she stands at the window, and she lets the pencil tell her the way.
+
 ---
 
 ## About This Book
