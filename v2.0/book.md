@@ -328,6 +328,58 @@ Tomorrow, she'll go south. Tomorrow, she'll knock on the door.
 
 Tonight, she stands at the window, and she lets the pencil tell her the way.
 
+### The Map of Rooms
+
+The train leaves at seven-forty in the morning, and Mara is on it, which surprises her less than it should. She has always been a person who follows through on decisions made in the dark, as if the night version of herself is braver, more certain, and the morning version is simply obligated to honor the contract. She sits by the window. The town recedes: the bakery with its pale-blue awning, the church spire, the mapmaker's shop with its windows still dark, its door still closed. She thinks about him, about the way he said Elena's name, and she thinks about the woman at the bakery, the one who had been his wife and then not, and then again, and then not. She wonders what it would be like to love someone across that many iterations. She wonders if it is love at all, or just a map that has been redrawn so many times it no longer resembles the terrain.
+
+The train moves south. The landscape flattens. The fields are yellow-brown, the color of paper left too long in the sun. She has the map in her pocket, folded into a square the size of her palm, and she takes it out and unfolds it on her lap. The new road is there, in pencil, leading through the garden to the door she drew last night. She touches the door with her fingertip. It is just a mark, a few strokes of graphite, but it feels like something more. It feels like a promise. She thinks about her daughter, about the last time she saw her, the way she stood at the door of her apartment with her arms crossed, the way she said *I'm not angry, I'm just tired,* and the way Mara had nodded as if she understood, when she didn't understand, when she still doesn't understand.
+
+The train stops at a small station. A woman gets on, middle-aged, with a shopping bag and a hat that doesn't quite fit. She sits across the aisle. She takes out a book, but she doesn't open it. She stares out the window, and her face is the face of someone who is thinking about a conversation they didn't have, or a conversation they had and wish they hadn't. Mara knows that face. She has seen it in the mirror. She has drawn it in the margins of her maps, the small figures with their heads tilted, their mouths open, their words unspooling like thread.
+
+Mara closes her eyes. She lets the rhythm of the train carry her. She thinks about the first map she ever drew, the one she made after her mother died, the one that showed the kitchen table where her mother sat every morning, and the chair that was always empty, and the cup that was always set out, and the conversation that never happened, the one where Mara said *I forgive you* and her mother said *I forgive you too,* and they both meant it. She never sent that map anywhere. She never showed it to anyone. She kept it in the drawer, and she didn't look at it for years, and then one day she did, and the pencil lines were faded, and the paper was soft at the edges, and she realized that the map had changed. The chair was still empty. The cup was still set out. But the door behind the table, the one she had drawn without thinking, the one that led to the garden where her mother used to work, was open.
+
+She doesn't know how that happened. She doesn't know if she drew it that way or if it just became that way, the way maps do when you keep them long enough, when you let them age, when you let them become what they need to be.
+
+The train slows. The conductor announces the station, and Mara looks out the window, and she sees the town where her daughter lives. It is smaller than she remembers. The streets are lined with trees, and there are children on bicycles, and there is a woman at a bus stop, and there is a man walking a dog, and all of it is ordinary, and all of it is strange, because she has imagined this arrival so many times that the real version feels like a copy of a copy.
+
+She gets off the train. She walks through the station, past the ticket booth, past the newsstand, past the café where she once drank coffee with her daughter, years ago, when everything was still possible. She knows the way to her daughter's apartment. She has walked it in her maps. She has traced it with her finger. She has drawn it in red and blue and green, and she has drawn it in pencil, and she has drawn it in ink, and she has erased it and drawn it again. But the real street is different. The real street has cracks in the pavement. The real street has a dog barking behind a fence. The real street has a smell, bread and exhaust and wet leaves, and it is not the smell of any map she has ever drawn.
+
+She stops at the corner. She can see the building. Her daughter lives on the third floor, the apartment with the balcony and the potted plants that Mara has never seen, because she has never been invited, not really, not in the way that matters. She takes out the map. She unfolds it. She looks at the road she drew, and she looks at the door, and she thinks about what the mapmaker said: *The conversation is what you say. The space between is what you mean.* She folds the map. She puts it back in her pocket. She crosses the street.
+
+The door of the building is unlocked. The stairs are worn. The hallway is dim. She climbs to the third floor, and she stands in front of the apartment, and she raises her hand, and she knocks. There is a pause. She hears footsteps. The door opens.
+
+Her daughter is there. She is older than the last time Mara saw her. There is gray in her hair, and lines around her eyes, and she is wearing a sweater that is too big, and she looks at Mara, and she doesn't smile, and she doesn't frown, and she doesn't say anything for a long moment.
+
+"Mom," she says. It is not a question. It is not an accusation. It is just a name, a word, a door opening.
+
+"Hello, Ruth," Mara says.
+
+Ruth steps back. She gestures. Mara steps inside. The apartment is small. There are books everywhere, stacked on the floor, on the windowsill, on the kitchen counter. There is a photograph on the wall, a woman and a child, and Mara recognizes it, because it is the photograph she took of Ruth and her father, before everything, before the leaving and the staying and the leaving again. She doesn't say anything. She doesn't know what to say.
+
+Ruth makes tea. They sit at a small table by the window. The tea is hot. The light is thin. Mara looks at her daughter, and she thinks about the conversation she mapped, the one where she asks *Was I enough?* and her daughter answers, and she thinks about the conversation she hasn't mapped, the one where she doesn't ask, the one where she just sits and drinks tea and lets the silence be what it is.
+
+"Ruth," Mara says. "I need to tell you something."
+
+Ruth looks at her. Her eyes are careful. They are the eyes of someone who has been hurt, and who has learned to protect herself, and who is not sure whether to lower the shield.
+
+"I don't know how to say it," Mara says. "I've drawn it a hundred times. In my head. On paper. I've mapped every version of this conversation, and none of them feel right."
+
+Ruth puts down her cup. "Then maybe you should just say it," she says.
+
+Mara looks at her daughter. She is not the child in the photograph. She is not the figure in the garden, the one Mara drew with her back turned, the one who was always at the center of the map and always out of reach. She is a woman. She has lived. She has been hurt. She has hurt others. She has made maps of her own, probably, maps of the conversations she wished she'd had, the ones with Mara, the ones where Mara stayed, the ones where Mara was enough.
+
+"I'm sorry," Mara says. "I'm sorry I wasn't there. I'm sorry I didn't know how. I'm sorry I drew maps instead of living. I'm sorry I made you stand at the center of a garden I never learned to cross."
+
+Ruth is quiet. The tea cools. The light shifts. And then Ruth reaches across the table, and she takes Mara's hand, and she holds it, and she doesn't say anything, and it is enough. It is not the conversation Mara mapped. It is not the conversation she wished she'd had. It is a different conversation, a new one, a pencil line on a blank page.
+
+"Mom," Ruth says. "I'm not asking you to be enough. I'm just asking you to be here."
+
+Mara looks at her daughter. She thinks about the map in her pocket, the one with the door she drew last night. She thinks about the mapmaker, and Elena, and the spaces between words. She thinks about the seed in the margin, and the green thread, and the garden that has been growing all along, even when she wasn't looking.
+
+"Okay," she says. "I'm here."
+
+She doesn't draw the conversation. She doesn't need to. She lives it. She sits at the table. She drinks the tea. She lets her daughter talk, and she listens, and she talks, and she listens, and the afternoon passes, and the light fades, and the map in her pocket grows a little softer, a little more worn, a little more real.
+
 ---
 
 ## About This Book
